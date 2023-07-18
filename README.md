@@ -1,4 +1,4 @@
-## Quien Soy?🚀
+## Quien Soy?
 
 Una persona bastante creativa y resiliente, que siempre procura lograr lo que 
 se propone, por medio de soluciones innovadoras para alcanzar sus objetivos.
